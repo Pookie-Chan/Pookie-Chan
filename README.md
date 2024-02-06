@@ -2,6 +2,6 @@
 - 👀 I’m interested in all things kawaii, fluffy, and pastel! (´｡• ω •｡`) ♡
 - 🌱 I’m currently learning how to make the cutest apps and websites! (⁄ ⁄•⁄ω⁄•⁄ ⁄)⁄
 - 💞️ I’m looking to collaborate on adorable projects that bring joy to everyone! (˘ ³˘)❤
-- 📫 How to reach me: Drop me a kawaii message at pookie.chan@example.com! (´• ω •`) ♡
-- 😄 Pronouns: he/He/ (*ฅ́˘ฅ̀*)♡
+- 📫 How to reach me: Drop me a kawaii message at pookiekawaiichan@gmail.com! (´• ω •`) ♡
+- 😄 Pronouns: he/Him (*ฅ́˘ฅ̀*)♡
 - ⚡ Fun fact: I hate ni..... (⁄ ⁄•⁄ω⁄•⁄ ⁄)⁄♡
